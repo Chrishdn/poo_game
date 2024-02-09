@@ -1,0 +1,5 @@
+Bienvenue dans l'arène des légendes, où la magie et la bravoure s'entremêlent dans une bataille épique qui transcende les âges. Préparez-vous à être transporté dans un monde inspiré des récits immortels de Tolkien, où deux puissances s'affrontent dans un duel sans merci : le Magicien Blanc, gardien de la lumière et de la sagesse, face au redoutable Roi Sorcier, maître des ténèbres et de la sorcellerie.
+
+Dans cette simulation de combat, vous assisterez à un affrontement stratégique où chaque choix de sortilège, chaque attaque lancée est un pas de plus vers la victoire ou la défaite. Les combattants, armés de leur force, de leur magie et de leur volonté, gagnent en expérience à chaque coup porté, devenant ainsi de plus en plus redoutables au fur et à mesure que le combat progresse.
+
+Que le duel commence ! Prenez part à cette épopée où chaque tour peut renverser le cours de la bataille. Serez-vous témoin de la victoire éclatante du Magicien Blanc, ou du triomphe sombre du Roi Sorcier ? L'issue du combat repose dans la balance du destin. Que l'aventure commence !
